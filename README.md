@@ -114,4 +114,4 @@ RESULT: VIDEO NOT FOUND ❌
 
 ---
 
-**Made with ❤️ by Atharva** | © 2025 All Rights Reserved
+**Made with ❤️ by Atharva** | © 2026 All Rights Reserved
